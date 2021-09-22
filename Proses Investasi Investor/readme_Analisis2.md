@@ -1,0 +1,2 @@
+# Kesimpulan
+Trend pada tahun 2020 cenderung lebih jelek daripada tahun 2019, hal ini mungkin karena adanya pandemi investor menjadi lebih lama untuk memprtimbangkan invest dimana, dan apakah pesanan yang sudah dibuat mau dibayar atau tidak
